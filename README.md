@@ -7,7 +7,7 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 <br><br>
 
-$${{\color{#0041c2}\{\textsf{⚡︎ This is not my main Github account ⚡︎\}}}}$$
+$${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡︎\}}}}$$
 
 <p align="center">
 <img width="80" height="40" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
