@@ -3,7 +3,7 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 <div align="center">
 
-  [𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#FF5C00}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)
+  [𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)
 
 <br><br>
 
