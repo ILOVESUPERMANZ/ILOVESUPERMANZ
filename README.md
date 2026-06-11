@@ -7,6 +7,8 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 <br><br>
 
+$${{\color{#ee9f27}\Large{\textsf{This is not my main Github account. This is soley made for DC and Marvel and for Github\}}}}$$
+
 <p align="center">
 <img width="80" height="40" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
 <img width="80" height="40" alt="Bigender_Flag svg (1)" src="https://github.com/user-attachments/assets/38bd94a9-8bf9-42fd-a6a0-5b842010de30" />
