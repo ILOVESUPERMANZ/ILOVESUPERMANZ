@@ -11,6 +11,6 @@
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=1000&lines=Its+not+an+S.;In+my+world,+it+means+Hope." />
+<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=051094&center=true&vCenter=true&width=1000&lines=Its+not+an+S.;In+my+world,+it+means+Hope." />
 
 </div>
