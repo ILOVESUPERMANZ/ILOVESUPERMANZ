@@ -1,5 +1,5 @@
 
-$${{\color{#0041C2}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
+$${{\color{#0041C2}\Large{\textsf{⚡︎ ˗ˏˋ ★ ˎˊ˗ ⚡︎\}}}}$$
 
 <div align="center">
 
