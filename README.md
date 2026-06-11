@@ -1,3 +1,6 @@
+<p align="center">
+$${{\color{#EC9706}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
+
 <div align="center">
 
   [𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) ⚡︎ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)
