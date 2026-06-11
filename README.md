@@ -16,6 +16,6 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=BF0A30&center=true&vCenter=true&width=1000&lines=Its+not+an+S.;In+my+world,+it+means+Hope." />
+<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=600&color=BF0A30&center=true&vCenter=true&width=1000&lines=Its+not+an+S.;In+my+world,+it+means+Hope." />
 
 </div>
