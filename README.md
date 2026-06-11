@@ -10,9 +10,9 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡︎\}}}}$$
 
 <p align="center">
-<img width="50" height="40" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
-<img width="50" height="40" alt="Bigender_Flag svg (1)" src="https://github.com/user-attachments/assets/38bd94a9-8bf9-42fd-a6a0-5b842010de30" />
-<img width="50" height="40" alt="Pansexuality_Pride_Flag svg" src="https://github.com/user-attachments/assets/9a13e66b-1906-4e95-88ce-d96175ae00cd" />
+<img width="60" height="20" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
+<img width="60" height="20" alt="Bigender_Flag svg (1)" src="https://github.com/user-attachments/assets/38bd94a9-8bf9-42fd-a6a0-5b842010de30" />
+<img width="60" height="20" alt="Pansexuality_Pride_Flag svg" src="https://github.com/user-attachments/assets/9a13e66b-1906-4e95-88ce-d96175ae00cd" />
 
 <div align="center">
 
