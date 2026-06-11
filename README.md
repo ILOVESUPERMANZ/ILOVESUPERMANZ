@@ -7,7 +7,7 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 <br><br>
 
-$${{\color{#ee9f27}\{\textsf{⚡︎ This is not my main Github account. This is soley made for DC and Marvel and for Pony Town ⚡︎\}}}}$$
+$${{\color{#0041c2}\{\textsf{⚡︎ This is not my main Github account ⚡︎\}}}}$$
 
 <p align="center">
 <img width="80" height="40" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
