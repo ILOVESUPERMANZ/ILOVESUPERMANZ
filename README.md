@@ -1,4 +1,4 @@
-<p align="center">
+
 $${{\color{#EC9706}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <div align="center">
