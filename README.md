@@ -33,8 +33,16 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 
 <br>
 
-${{\color{#0041c2}{\textsf{⌔ W2I most times since im mostly offtab or afk at times at might not see your messages in public chat, especially when im sitting alone ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ W2I most times since im mostly offtab or afk at times at might not see your messages in public chat, especially when im sitting alone ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{⌔ I tend to hide people temporarily at times whenever the area im on is getting too crowded ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ I tend to hide people temporarily at times whenever the area im on is getting too crowded ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ I really love yapping... gulps ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ I might say some weird things that can make u uncomfortable. I apologize in advance if I do. Please dont hesitate to tell me if I actually did ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ I use my fav and comf chars to cope (especially my comf chars) so if you hate one of them I might take it very personally ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, especially when I get excited so sorry in advance if you dont understand me at times ⌔\}}}}$
 
 </div>
