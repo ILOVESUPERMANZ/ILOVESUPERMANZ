@@ -46,3 +46,14 @@ ${{\color{#0041c2}{\textsf{ ⌔ I use my fav and comf chars to cope (especially 
 ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, especially when I get excited so sorry in advance if you dont understand me at times ⌔\}}}}$
 
 </div>
+
+</div>
+
+</details>
+<summary><strong> ⌔ IWEC ⌔ </strong></summary>
+
+<br>
+
+${{\color{#0041c2}{\textsf{ ⌔ DC fans. Nothing personal. I jst get sooo nervous and scared whenever you guys int with me for some reason, even if its jst sitting next to me or complimenting me. I find u guys scary and I have such a hard time\}}}}$
+${{\color{#0041c2}{\textsf{getting along with you guys ⌔\}}}}$
+
