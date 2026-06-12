@@ -47,7 +47,6 @@ ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, es
 
 </div>
 
-
 <div align="center">
 
 </details>
