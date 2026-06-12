@@ -19,3 +19,30 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 <img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=600&color=BF0A30&center=true&vCenter=true&width=1000&lines=Its+not+an+S.;On+my+world,+it+means+Hope." />
 
 </div>
+
+</details>
+
+</div>
+
+<div align="center">
+
+<details>
+<summary><strong> DNI </strong></summary>
+
+<br>
+
+$${{\color{#FF5C00}{\textsf{🗲 people with under 16 DNI because that applies to me 🗲\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{🗲 If you ship Billy with Freddy or any of the Marvel/Shazam family 🗲 \}}}}$$
+
+$${{\color{#FF5C00}{\textsf{🗲 If you ship Spy with Scout 🗲 \}}}}$$
+
+$${{\color{#FF5C00}{\textsf{🗲 If you hate any of my comfort fandoms/characters and kins 🗲\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{🗲 If you make sick jokes of such serious topics like the epstein files, 9/11, war and more 🗲 \}}}}$$
+
+$${{\color{#FF5C00}{\textsf{🗲 Any kind of biggotry 🗲\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{🗲 Anti xenogenders and neopronouns 🗲 \}}}}$$
+
+</div>
