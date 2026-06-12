@@ -27,7 +27,7 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 <div align="center">
 
 <details>
-<summary><strong> ${{\color{#0041c2}{\textsf{ ⌔ BYI ⌔\}}}}$ </strong></summary>
+<summary><strong>${{\color{#0041c2}{\textsf{ ⌔ BYI ⌔\}}}}$</strong></summary>
 
 <br>
 
