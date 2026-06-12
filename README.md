@@ -5,7 +5,7 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 $${{\color{#0041c2}{\textsf{ ⌔ Billy Batson and Kon-El fictkin ⌔ \}}}}$$
 
-[𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)
+[𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)  $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ᴀᴛᴀʙᴏᴏᴋ](https://ilovesuperman.atabook.org/)
 
 <br><br>
 
@@ -88,7 +88,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ People with 16+ under DNIs since that applies to
 
 ${{\color{#0041c2}{\textsf{ ⌔ my cute and adorraableee friendss!! I love you guys smm ty for being my friend and sticking with me awhhh <3 /plat ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ SUPERAMMANN!! ILOVE JKHIM SO MUCCHHH HES MY COMF CHARR HE MAKES ME SO HAPPPY JASUDHOIA ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ SUPERAMMANN!! ILOVE JKHIM SO MUCCHHH HES MY COMF CHARR HE MAKES ME SO HAPPPY JASUDHOIA!!! PLASTIC MANTOO HES SO FUNNY AND SILLY AWWWWH <33 ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Golden retrievers!!! they are sooo cutee andIm literally one trust me guys ⌔\}}}}$
 
