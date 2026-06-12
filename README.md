@@ -4,7 +4,8 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 <div align="center">
 
 $${{\color{#0041c2}{\textsf{ ⌔ Billy Batson and Kon-El fictkin ⌔ \}}}}$$
-  [𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)
+
+[𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)
 
 <br><br>
 
