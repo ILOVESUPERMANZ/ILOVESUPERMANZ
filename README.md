@@ -79,3 +79,24 @@ ${{\color{#0041c2}{\textsf{ ⌔ If you make jokes such serious topics such as sl
 
 ${{\color{#0041c2}{\textsf{ ⌔ People with 16+ under DNIs since that applies to me gulpss ⌔\}}}}$
 
+</div>
+
+<div align="center">
+
+<details>
+<summary><strong> ⌔ I reAALLY LOEEVEE ⌔ </strong></summary>
+
+${{\color{#0041c2}{\textsf{ ⌔ my cute and adorraableee friendss!! I love you guys smm ty for being my friend and sticking with me awhhh <3 /plat ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ SUPERAMMANN!! ILOVE JKHIM SO MUCCHHH HES MY COMF CHARR HE MAKES ME SO HAPPPY JASUDHOIA ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ Golden retrievers!!! they are sooo cutee andIm literally one trust me guys ⌔\}}}}$
+
+</div>
+
+$${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
+
+<p align="center">
+<img width="573" height="350" alt="Screenshot 2026-06-13 014708" src="https://github.com/user-attachments/assets/1f8f273c-2f84-4baa-8354-84f0d346cd72" />
+<img width="424" height="62" alt="Screenshot 2026-06-13 014653" src="https://github.com/user-attachments/assets/78861928-9ee7-45c7-9dea-36ec47988c96" />
+<img width="454" height="108" alt="Screenshot 2026-06-13 014627" src="https://github.com/user-attachments/assets/43292071-7dfc-46d4-9329-9c53bc674820" />
