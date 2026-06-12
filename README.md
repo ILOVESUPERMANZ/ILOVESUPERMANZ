@@ -49,7 +49,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, es
 
 <div align="center">
 
-</details>
+<details>
 <summary><strong> ⌔ IWEC ⌔ </strong></summary>
 
 <br>
