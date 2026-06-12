@@ -65,3 +65,5 @@ ${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I js
 ${{\color{#0041c2}{\textsf{that I might do something to offend you all ⌔\}}}}$
 
 </div>
+
+</div>
