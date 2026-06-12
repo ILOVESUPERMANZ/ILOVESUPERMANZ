@@ -61,5 +61,6 @@ ${{\color{#0041c2}{\textsf{complimenting me. I find u guys scary and I have such
 
 ${{\color{#0041c2}{\textsf{ ⌔ Shippers. Idk, idm ships but I barely ship characters soooo I might be awkward when talking about ships ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I jst get sooo anxious and worried cuz I dont know much about systems and worry too much that I might do something to offend you all ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I jst get sooo anxious and worried cuz I dont know much about systems and worry too much\}}}}$
+${{\color{#0041c2}{\textsf{that I might do something to offend you all ⌔\}}}}$
 
