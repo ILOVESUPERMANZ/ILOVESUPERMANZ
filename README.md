@@ -47,9 +47,6 @@ ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, es
 
 </div>
 
-</details>
-
-</div>
 
 <div align="center">
 
@@ -65,5 +62,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ Shippers. Idk, idm ships but I barely ship chara
 
 ${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I jst get sooo anxious and worried cuz I dont know much about systems and worry too much\}}}}$
 ${{\color{#0041c2}{\textsf{that I might do something to offend you all ⌔\}}}}$
+
+</details>
 
 </div>
