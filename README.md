@@ -49,11 +49,13 @@ ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, es
 
 </div>
 
+<div align="center">
+
 </details>
 <summary><strong> ⌔ IWEC ⌔ </strong></summary>
 
 <br>
 
-${{\color{#0041c2}{\textsf{ ⌔ DC fans. Nothing personal. I jst get sooo nervous and scared whenever you guys int with me for some reason, even if its jst sitting next to me or complimenting me. I find u guys scary and I have such a hard time\}}}}$
-${{\color{#0041c2}{\textsf{getting along with you guys ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ DC fans. Nothing personal. I jst get sooo nervous and scared whenever you guys int with me for some reason, even if its jst sitting next to me or\}}}}$
+${{\color{#0041c2}{\textsf{complimenting me. I find u guys scary and I have such a hard time getting along with you guys ⌔\}}}}$
 
