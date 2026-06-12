@@ -33,8 +33,8 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 
 <br>
 
-${{\color{0041c2}{\textsf{ ⌔ W2I most times since im mostly offtab or afk at times at might not see your messages in public chat, especially when im sitting alone ⌔\}}}}$
+${{\color{0041c2}{\textsf{⌔ W2I most times since im mostly offtab or afk at times at might not see your messages in public chat, especially when im sitting alone ⌔\}}}}$
 
-${{\color{0041c2}{\textsf{ ⌔ I tend to hide people temporarily at times whenever the area im on is getting too crowded ⌔ \}}}}$
+${{\color{0041c2}{\textsf{⌔ I tend to hide people temporarily at times whenever the area im on is getting too crowded ⌔\}}}}$
 
 </div>
