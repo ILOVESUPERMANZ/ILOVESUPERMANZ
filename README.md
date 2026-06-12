@@ -100,3 +100,4 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 <img width="340" height="220" alt="Screenshot 2026-06-13 014708" src="https://github.com/user-attachments/assets/1f8f273c-2f84-4baa-8354-84f0d346cd72" />
 <img width="424" height="62" alt="Screenshot 2026-06-13 014653" src="https://github.com/user-attachments/assets/78861928-9ee7-45c7-9dea-36ec47988c96" />
 <img width="454" height="108" alt="Screenshot 2026-06-13 014627" src="https://github.com/user-attachments/assets/43292071-7dfc-46d4-9329-9c53bc674820" />
+$${{\color{#0041C2}{\textsf{awhh look at my tsundere friends guys hes sooo sweet <3\}}}}$$
