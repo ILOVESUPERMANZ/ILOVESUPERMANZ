@@ -27,11 +27,10 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 <div align="center">
 
 <details>
-
 <summary><strong> ⌔ BYI ⌔ </strong></summary>
 
 <br>
 
-${{\color{#4682b4}{\textsf{ ⌔ W2I most times since im mostly offtab or afk at times at might not see your messages in public chat, especially when im sitting alone ⌔\}}$
+${{\color{#4682b4}{\textsf{ ⌔ W2I most times since im mostly offtab or afk at times at might not see your messages in public chat, especially when im sitting alone ⌔\}}}}$
 
 </div>
