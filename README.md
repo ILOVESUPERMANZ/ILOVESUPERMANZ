@@ -39,11 +39,15 @@ ${{\color{#0041c2}{\textsf{ ⌔ I tend to hide people temporarily at times whene
 
 ${{\color{#0041c2}{\textsf{ ⌔ I really love yapping... gulps ⌔\}}}}$
 
+${{\color{#0041c2}{\textsf{ ⌔ Expect me to actually sit with you if you have C+H in ur name whenever im sitting alone ⌔\}}}}$
+
 ${{\color{#0041c2}{\textsf{ ⌔ I might say some weird things that can make u uncomfortable. I apologize in advance if I do. Please dont hesitate to tell me if I actually did ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ I use my fav and comf chars to cope (especially my comf chars) so if you hate one of them I might take it very personally ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, especially when I get excited so sorry in advance if you dont understand me at times ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ Doubles are free to int. I dont really mind and I love doubles ⌔\}}}}$
 
 </div>
 
@@ -63,3 +67,15 @@ ${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I js
 ${{\color{#0041c2}{\textsf{that I might do something to offend you all ⌔\}}}}$
 
 </div>
+
+<div align="center">
+
+<details>
+<summary><strong> ⌔ DNI ⌔ </strong></summary>
+
+${{\color{#0041c2}{\textsf{ ⌔ Anti xenogenders and neopronouns ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ If you make jokes such serious topics such as slavery, war, misogony/misandry, Esptein files, etc ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ People with 16+ under DNIs since that applies to me gulpss ⌔\}}}}$
+
