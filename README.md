@@ -49,8 +49,8 @@ ${{\color{#0041c2}{\textsf{since I mostly get too distracted and excited when ta
 
 ${{\color{#0041c2}{\textsf{ ⌔ I use my fav and comf chars to cope (especially my comf chars) so if you hate one of them I might take it very personally ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ I mostly read the comics and tend to not watch the films made (even the popular movies), so if you make any references or talk about one of the\}}}}$
-${{\color{#0041c2}{\textsf{films I might not understand you at all ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ I mostly read the comics and tend to not watch the films made (even the popular movies), so if you make any references or talk about one of\}}}}$
+${{\color{#0041c2}{\textsf{the films I might not understand you at all ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, especially when I get excited so sorry in advance if you dont understand me at times ⌔\}}}}$
 
