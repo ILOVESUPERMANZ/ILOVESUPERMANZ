@@ -43,6 +43,8 @@ ${{\color{#0041c2}{\textsf{ ⌔ Expect me to actually sit with you if you have C
 
 ${{\color{#0041c2}{\textsf{ ⌔ I might say some weird things that can make u uncomfortable. I apologize in advance if I do. Please dont hesitate to tell me if I actually did ⌔\}}}}$
 
+${{\color{#0041c2}{\textsf{ ⌔ Im so sorry if I come off as rude and sooo and condescending. I dont mean to since most of my words are meant to be taken as a joke and never seriously ⌔\}}}}$
+
 ${{\color{#0041c2}{\textsf{ ⌔ I use my fav and comf chars to cope (especially my comf chars) so if you hate one of them I might take it very personally ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ My spelling and grammar sucks a lot at times, especially when I get excited so sorry in advance if you dont understand me at times ⌔\}}}}$
@@ -64,7 +66,7 @@ ${{\color{#0041c2}{\textsf{complimenting me. I find u guys scary and I have such
 ${{\color{#0041c2}{\textsf{ ⌔ Shippers. Idk, idm ships but I barely ship characters soooo I might be awkward when talking about ships ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I jst get sooo anxious and worried cuz I dont know much about systems and worry too much\}}}}$
-${{\color{#0041c2}{\textsf{that I might do something to offend you all ⌔\}}}}$
+${{\color{#0041c2}{\textsf{that I might accidentally do something to offend you all unintentionally ⌔\}}}}$
 
 </div>
 
@@ -75,7 +77,7 @@ ${{\color{#0041c2}{\textsf{that I might do something to offend you all ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Anti xenogenders and neopronouns ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ If you make jokes such serious topics such as slavery, war, misogony/misandry, Esptein files, etc ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ If you make sick jokes about serious topics such as slavery, war, misogony/misandry, Esptein files, etc ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ People with 16+ under DNIs since that applies to me gulpss ⌔\}}}}$
 
