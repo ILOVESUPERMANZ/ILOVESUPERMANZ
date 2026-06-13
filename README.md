@@ -95,7 +95,8 @@ ${{\color{#0041c2}{\textsf{ ⌔ People with 16+ under DNIs since that applies to
 
 ${{\color{#0041c2}{\textsf{ ⌔ my cute and adorraableee friendss!! I love you guys smm ty for being my friend and sticking with me awhhh <3 /plat ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ SUPERAMMANN!! ILOVE JKHIM SO MUCCHHH HES MY COMF CHARR HE MAKES ME SO HAPPPY JASUDHOIA!!! PLASTIC MANTOO HES SO FUNNY AND SILLY AWWWWH <33 ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ SUPERAMMANN!! ILOVE JKHIM SO MUCCHHH HES MY COMF CHARR HE MAKES ME SO HAPPPY JASUDHOIA!!! PLASTIC MANTOO HES SO\}}}}$
+${{\color{#0041c2}{\textsf{FUNNY AND SILLY AWWWWH HE MAKES ME SOO HAPPY TOO <33⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Golden retrievers!!! they are sooo cutee andIm literally one trust me guys ⌔\}}}}$
 
