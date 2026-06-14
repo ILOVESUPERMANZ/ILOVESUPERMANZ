@@ -69,7 +69,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ Doubles are free to int. I dont really mind and 
 ${{\color{#0041c2}{\textsf{ ⌔ DC fans. Nothing personal. I jst get sooo nervous and scared whenever you guys int with me for some reason, even if its jst sitting next to me or\}}}}$
 ${{\color{#0041c2}{\textsf{complimenting me. I find u guys scary and I have such a hard time getting along with you guys ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ Shippers. Idk, idm ships but I barely ship characters soooo I might be awkward when talking about ships ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ Shippers. Idk, idm ships but I barely ship characters soooo I get really awkward when talking about ships ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I jst get sooo anxious and worried cuz I dont know much about systems and worry too much\}}}}$
 ${{\color{#0041c2}{\textsf{that I might accidentally do something to offend you all unintentionally ⌔\}}}}$
@@ -87,7 +87,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ If you make sick jokes about serious topics such
 
 ${{\color{#0041c2}{\textsf{ ⌔ If you gen mock my grammar and spelling, like I get its not the best and sucks a lot but that just makes me sooo sad and miserable being mocked like that ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ If you make fun of how I talk and behave cuz this also makes me soo sad cuz I jst wnna have fun here and express myself in PT man ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ If you make fun and hate of how I talk and behave cuz this also makes me soo sad cuz I jst wnna have fun here and express myself in PT man ⌔\}}}}$
 
 </div>
 
@@ -100,6 +100,10 @@ ${{\color{#0041c2}{\textsf{ ⌔ my cute and adorraableee friendss!! I love you g
 
 ${{\color{#0041c2}{\textsf{ ⌔ SUPERAMMANN!! ILOVE JKHIM SO MUCCHHH HES MY COMF CHARR HE MAKES ME SO HAPPPY JASUDHOIA!!! PLASTIC MANTOO HES SO\}}}}$
 ${{\color{#0041c2}{\textsf{FUNNY AND SILLY AWWWWH HE MAKES ME SOO HAPPY TOO <33⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ Socializing and making new friends in PT!!!! I really love talking to new people :] ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ Cuddling and sitting  ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Golden retrievers!!! they are sooo cutee andIm literally one trust me guys ⌔\}}}}$
 
