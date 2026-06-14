@@ -29,9 +29,11 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 <div align="center">
 
 <details>
-<summary><strong> ⌔ BYI ⌔ </strong></summary>
+<summary><strong> ⭐ BYI ⭐ </strong></summary>
 
 <br>
+
+${{\color{#0041c2}{\textsf{ ⌔ I tend to glaze and boast myself a lot as a joke gulp... PLEASE TELL ME IF IT ANNOYS U ILL STOP IMMEDIATELY!!! ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ W2I most times since im mostly offtab or afk at times and might not see your messages in public chat, especially when im sitting alone ⌔\}}}}$
 
@@ -62,7 +64,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ Doubles are free to int. I dont really mind and 
 <div align="center">
 
 <details>
-<summary><strong> ⌔ IWEC ⌔ </strong></summary>
+<summary><strong> ⭐ IWEC ⭐ </strong></summary>
 
 <br>
 
@@ -72,22 +74,21 @@ ${{\color{#0041c2}{\textsf{complimenting me. I find u guys scary and I have such
 ${{\color{#0041c2}{\textsf{ ⌔ Shippers. Idk, idm ships but I barely ship characters soooo I get really awkward when talking about ships ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Systems. I HAVE NOTHING AGAINST SYSTEMS!!!! I jst get sooo anxious and worried cuz I dont know much about systems and worry too much\}}}}$
-${{\color{#0041c2}{\textsf{that I might accidentally do something to offend you all unintentionally ⌔\}}}}$
-
-${{\color{#0041c2}{\textsf{ ⌔ ⌔\}}}}$
+${{\color{#0041c2}{\textsf{that I might accidentally do something to offend you all on accident ⌔\}}}}$
 
 </div>
 
 <div align="center">
 
 <details>
-<summary><strong> ⌔ DNI ⌔ </strong></summary>
+<summary><strong> ⭐ DNI ⭐ </strong></summary>
 
 ${{\color{#0041c2}{\textsf{ ⌔ Anti xenogenders and neopronouns ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ If you make sick jokes about serious topics such as slavery, war, misogony/misandry, Esptein files, 9/11 etc ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ If you gen mock my grammar and spelling, like I get its not the best and sucks a lot but that just makes me sooo sad and miserable being mocked like that ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ If you gen mock my grammar and spelling, like I get its not the best and sucks a lot but that just makes me sooo sad and miserable\}}}}$
+${{\color{#0041c2}{\textsf{being mocked like that ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ If you make fun and hate of how I talk and behave cuz this also makes me soo sad cuz I jst wnna have fun here and express myself in PT man ⌔\}}}}$
 
@@ -96,7 +97,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ If you make fun and hate of how I talk and behav
 <div align="center">
 
 <details>
-<summary><strong> ⌔ I reAALLY LOEEVEE ⌔ </strong></summary>
+<summary><strong> ⭐ I reAALLY LOEEVEE ⭐ </strong></summary>
 
 ${{\color{#0041c2}{\textsf{ ⌔ my cute and adorraableee friendss!! I love you guys smm ty for being my friend and sticking with me awhhh <3 /plat ⌔\}}}}$
 
@@ -105,7 +106,7 @@ ${{\color{#0041c2}{\textsf{FUNNY AND SILLY AWWWWH HE MAKES ME SOO HAPPY TOO <33�
 
 ${{\color{#0041c2}{\textsf{ ⌔ Socializing and making new friends in PT!!!! I really love talking to new people :] ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ Cuddling and sitting  ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ Cuddling and sitting with other people!!! Like yes, ur silly little pixel pony being next to mine is sooo adorable and I love it a lot ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Golden retrievers!!! they are sooo cutee andIm literally one trust me guys ⌔\}}}}$
 
