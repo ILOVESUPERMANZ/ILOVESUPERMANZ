@@ -37,7 +37,7 @@ ${{\color{#0041c2}{\textsf{ ⌔ W2I most times since im mostly offtab or afk at 
 
 ${{\color{#0041c2}{\textsf{ ⌔ I tend to hide people temporarily at times whenever the area im on is getting too crowded ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ I really love yapping... gulps ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ I really love yapping and talking a lot... gulps ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ Expect me to actually sit with you if you have C+H in ur name whenever im sitting alone ⌔\}}}}$
 
@@ -45,7 +45,8 @@ ${{\color{#0041c2}{\textsf{ ⌔ I might say some weird things that can make u un
 
 ${{\color{#0041c2}{\textsf{ ⌔ Im so sorry if I come off as rude and sooo and condescending. I dont mean to since most of my words are meant to be taken as a joke\}}}}$
 ${{\color{#0041c2}{\textsf{and never seriously. I tend to not think first whether others will realise if my words are a joke or not or if it might hurt them\}}}}$
-${{\color{#0041c2}{\textsf{since I mostly get too distracted and excited when talking too much. Sorry if I say anything that sounds rude towards you :( ⌔\}}}}$
+${{\color{#0041c2}{\textsf{since I mostly get too distracted and excited when talking too much and forget to use tone tags. ⌔\}}}}$
+${{\color{#0041c2}{\textsf{Sorry if I say anything that sounds rude towards you :( ⌔\}}}}$
 
 ${{\color{#0041c2}{\textsf{ ⌔ I use my fav and comf chars to cope (especially my comf chars) so if you hate one of them I might take it very personally ⌔\}}}}$
 
