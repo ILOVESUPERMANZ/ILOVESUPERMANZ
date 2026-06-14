@@ -83,9 +83,11 @@ ${{\color{#0041c2}{\textsf{that I might accidentally do something to offend you 
 
 ${{\color{#0041c2}{\textsf{ ⌔ Anti xenogenders and neopronouns ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ If you make sick jokes about serious topics such as slavery, war, misogony/misandry, Esptein files, etc ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ If you make sick jokes about serious topics such as slavery, war, misogony/misandry, Esptein files, 9/11 etc ⌔\}}}}$
 
-${{\color{#0041c2}{\textsf{ ⌔ People with 16+ under DNIs since that applies to me gulpss ⌔\}}}}$
+${{\color{#0041c2}{\textsf{ ⌔ If you gen mock my grammar and spelling, like I get its not the best and sucks a lot but that just makes me sooo sad and miserable being mocked like that ⌔\}}}}$
+
+${{\color{#0041c2}{\textsf{ ⌔ If you make fun of how I talk and behave cuz this also makes me soo sad cuz I jst wnna have fun here and express myself in PT man ⌔\}}}}$
 
 </div>
 
