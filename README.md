@@ -34,7 +34,7 @@ alt="plastic man (1)" src="https://github.com/user-attachments/assets/dff6a0f5-a
   <tr>
     <th>
       <img src="https://github.com/user-attachments/assets/10adf8b4-32c2-49bd-a8f5-0c006bfaa6d3" />
-     im lit soo cool right guys?? *everyone says yes and agrees with me*
+     im lit soo cool right guys?? *everyone says yes*
     </th>
   </tr>
 </table>
