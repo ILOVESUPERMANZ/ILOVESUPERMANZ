@@ -34,7 +34,8 @@ alt="plastic man (1)" src="https://github.com/user-attachments/assets/dff6a0f5-a
   <tr>
     <th>
       <img src="https://github.com/user-attachments/assets/10adf8b4-32c2-49bd-a8f5-0c006bfaa6d3" />
-      Hi my names Zilch or Blu but u can call me like Con or Billy or something idk, im lit sooo cool ghuys you wont regret talking to me and becominh my friend trust meee!!
+     - Hi my names Zilch or Blu but u can call me like Con or Billy or something idk, im lit sooo cool ghuys
+     - you wont regret talking to me and becominh my friend trust meee!!
     </th>
   </tr>
 </table>
