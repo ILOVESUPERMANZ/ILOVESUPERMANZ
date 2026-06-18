@@ -38,7 +38,7 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
   <tr>
     <th>
       <img src="https://github.com/user-attachments/assets/10adf8b4-32c2-49bd-a8f5-0c006bfaa6d3" />
-     im lit soo cool you wont regret talkinmg to me and being my friend trust
+     im lit soo cool you wont regret talkinmg to me
     </th>
   </tr>
 </table>
