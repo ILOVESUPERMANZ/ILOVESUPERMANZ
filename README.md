@@ -33,12 +33,8 @@ alt="plastic man (1)" src="https://github.com/user-attachments/assets/dff6a0f5-a
 <table>
   <tr>
     <th>
-      <img src="https://github.com/user-attachments/assets/53061ed8-87c7-463d-8273-396ae7990159" />
-      <span color="#ff99cc;">Pink text</span><br>
-      <img src="https://github.com/user-attachments/assets/53061ed8-87c7-463d-8273-396ae7990159" />
- <span style="color:#99ccff;">Blue text</span><br>
-   <img src="https://github.com/user-attachments/assets/53061ed8-87c7-463d-8273-396ae7990159" />
-      <span style="color:#b5ff99;">Green text</span>
+      <img src="https://github.com/user-attachments/assets/10adf8b4-32c2-49bd-a8f5-0c006bfaa6d3" />
+      isdau
     </th>
   </tr>
 </table>
