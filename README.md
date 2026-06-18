@@ -21,6 +21,7 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 <img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=600&color=BF0A30&center=true&vCenter=true&width=1000&lines=Its+not+an+S.;On+my+world,+it+means+Hope." />
 
 </div>
+
 ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}}}}$
 
 </details>
