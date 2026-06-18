@@ -26,11 +26,9 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 
 </div>
 
-<img 
-align=right
-width="400" 
-height="400" 
-alt="plastic man (1)" src="https://github.com/user-attachments/assets/8f89d1dc-b6d6-49b2-9ab7-ca28db662de8" />
+<p align="right"
+
+<img width="400" height="400" alt="plastic man (1)" src="https://github.com/user-attachments/assets/dff6a0f5-a695-4808-a7f5-fe58d9409a95" />
 
 </div>
 
