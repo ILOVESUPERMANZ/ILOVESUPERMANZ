@@ -22,8 +22,6 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 
 </div>
 
-${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}}}}$
-
 </details>
 
 </div>
@@ -33,6 +31,9 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
 <img width="400" height="400" alt="plastic man (1)" src="https://github.com/user-attachments/assets/dff6a0f5-a695-4808-a7f5-fe58d9409a95" />
 
 </div>
+
+${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}}}}$
+
 
 <div align="center">
 
