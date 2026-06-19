@@ -74,7 +74,7 @@ ${{\color{#BF0A30}{\textsf{✮ Biggest Superman and Plastic Man enthusiast <3⋆
 
   <br>
 
-  ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times... sooo sorry in advance for this ⌔\}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times gulps... sooo sorry in advance for this ⌔\}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages ⌔ \}}}}$
 
@@ -82,8 +82,9 @@ ${{\color{#BF0A30}{\textsf{✮ Biggest Superman and Plastic Man enthusiast <3⋆
 
   ${{\color{#0041c2}{\textsf{⌔ Friend reqs r off so you might need to ask me first that u wna add me or something ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ I might say things that might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I might say weird and rude things might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
 
+  ${{\color{#0041c2}{\textsf{⌔ ⌔ \}}}}$
 
 </details>
 
