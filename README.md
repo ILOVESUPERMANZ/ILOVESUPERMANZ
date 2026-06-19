@@ -164,3 +164,27 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
 </details>
 
+<details>
+  <summary>
+<img width="20" height="20" alt="happy spidrman" src="https://github.com/user-attachments/assets/08468802-8f6e-4451-bbfc-9b62fc6d5a37" />
+    ALSO I REALYY LOVEEE 
+<img width="20" height="20" alt="happy spidrman" src="https://github.com/user-attachments/assets/80eb7416-a874-43c8-b2bc-0b4347aeda4f" />
+    </span>
+  </summary>
+
+  <br>
+
+  ${{\color{#0041c2}{\textsf{⌔ GOLDEN RETRIEVERS THEY R SOOO CUTE AWHHHHH HADUHAD; ASD ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ Rainbows, sun and clouds!! they lit sooo pretty i love taking pictures of them and watching themm ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ My cute and adorable friends!! AAA ILY ALL SMM TYSMM FOR STICKING WITH ME <3⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ socializing and making new friends in pony town!! ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ cuddling with others! yes i find it veryy adorbs and cute when ur pixel ponies sits and cuddle besides mine!! ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ SUPERMSN AND PLASTIC MANN!!! I LOVEE THEM BOTH SMMMM THYE MAKE ME SOO HAPPY AND HGELPS ME THROUGH BAD DAYS <3 ⌔ \}}}}$
+
+
+
