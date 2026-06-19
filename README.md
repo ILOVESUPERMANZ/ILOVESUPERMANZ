@@ -50,6 +50,10 @@ ${{\color{#BF0A30}{\textsf{✮ PLEASE atleast check evrything linked here to knn
 
 ${{\color{#BF0A30}{\textsf{abt me before u interact or smthing. I appreciate it a lott ⋆˙ \}}}}$
 
+${{\color{#BF0A30}{\textsf{✮ There will be more info in my main Git acc but its also\}}}}$
+
+${{\color{#BF0A30}{\textsf{still a wip sooo might as well jst wait for it guyss⋆˙\}}}}$
+
 </space>
 
 </space>
@@ -67,15 +71,15 @@ ${{\color{#BF0A30}{\textsf{abt me before u interact or smthing. I appreciate it 
 
   <br>
 
-  ${{\color{#f7f1d1}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times... sooo sorry in advance for this ⌔\}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times... sooo sorry in advance for this ⌔\}}}}$
 
-  ${{\color{#f7f1d1}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages ⌔ \}}}}$
 
-  ${{\color{#f7f1d1}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
 
-  ${{\color{#f7f1d1}{\textsf{⌔ Friend reqs r off so you might need to ask me first that u wna add me or something ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ Friend reqs r off so you might need to ask me first that u wna add me or something ⌔ \}}}}$
 
-  ${{\color{#f7f1d1}{\textsf{⌔ I might say things that might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I might say things that might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
 
 
 </details>
