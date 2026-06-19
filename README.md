@@ -47,6 +47,7 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
 ${{\color{#BF0A30}{\textsf{✮ Github is a WIP. Everything drawn here is drawn by me ⋆˙ \}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ PLEASE atleast check evrything linked here to knnow more info abt me\}}}}$
+
 ${{\color{#BF0A30}{\textsf{before u interact or smthing. I appreciate it a lott ⋆˙ \}}}}$
 
 </space>
