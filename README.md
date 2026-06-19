@@ -27,7 +27,7 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 </div>
 
 <img align="right"
-width="400"
+width="390"
 alt="PUPPUSUOERMAN" src="https://github.com/user-attachments/assets/7776e600-920e-4bab-8374-2e8ca7748671" />
 
 
