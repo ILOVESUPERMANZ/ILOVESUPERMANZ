@@ -52,11 +52,11 @@ ${{\color{#BF0A30}{\textsf{abt me before u interact or smthing. I appreciate it 
 
 ${{\color{#BF0A30}{\textsf{✮ There will be more info in my main Git acc but its also\}}}}$
 
-${{\color{#BF0A30}{\textsf{still a wip sooo might as well jst wait for it guyss⋆˙\}}}}$
+${{\color{#BF0A30}{\textsf{still a wip sooo might as well jst wait for it guyss ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Literally Billy Batson and Conner Kent IRL ⋆˙\}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ Biggest Superman and Plastic Man enthusiast <3⋆˙ \}}}}$
+${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
 
 
 </seperate>
