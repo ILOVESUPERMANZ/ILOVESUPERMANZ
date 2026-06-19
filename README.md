@@ -80,11 +80,16 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ Friend reqs r off so you might need to ask me first that u wna add me or something ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ Friend reqs r off since idont accept random friend req. Might need to talk to me for a few days to finally add u ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I might say weird and rude things might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I use my comf cxhars to cope so if u "HATE" one of them i might take it veryyy personally ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ I dont use tone tags much often so be aware and cautious of this, especially if u need tone tags constantly ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ I mostly read the comics instead of watching the films and movies so i mgiht now understand u and get confused when u talk aboiut the films ⌔ \}}}}$
+
 
 </details>
 
