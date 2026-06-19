@@ -186,5 +186,26 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ SUPERMSN AND PLASTIC MANN!!! I LOVEE THEM BOTH SMMMM THYE MAKE ME SOO HAPPY AND HGELPS ME THROUGH BAD DAYS <3 ⌔ \}}}}$
 
+</details>
 
+<details>
+  <summary>
+<img width="20" height="20" alt="STATUSMEASUP" src="https://github.com/user-attachments/assets/fdb88282-b535-43da-af34-4190d705e3ab" />
+   Status meaning!!
+<img width="20" height="20" alt="STATUSMEASUP" src="https://github.com/user-attachments/assets/68ef6e41-c0f1-40ba-8dd5-745a2b435d5b" />
+    </span>
+  </summary>
 
+  <br>
+
+  ${{\color{#0041c2}{\textsf{⌔ Online= actively on tab and will respond fast, usually talking with someone else like my friends ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ Busy= offtab, maybe studying too and will respond slow. Will need to W2I ⌔ \}}}}$
+  
+  ${{\color{#0041c2}{\textsf{⌔ Away= AFK, no response and might disconnect!! will also need to W2I ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ Looking for chat= waiting for friends and looking for socializations! Int heavily enc!! ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ looking for roleplay= feeling silly and in the mood to roleplay! ⌔ \}}}}$
+
+</details>
