@@ -43,4 +43,4 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
   </tr>
 </table>
 
-okay guys check out my epic sketches thats lazil y done and unfisnished half of thew timeee in my other public respiratroyy!!! it only has dc for now... pluhh. more sketches and arts on my main github thoughh
+okay guys check out my epic sketches thats lazil y done and unfisnished half of thew timeee in my other public respiratroyy!!! it only has dc for now... pluhh. more sketches and arts on my main github thoughh. ALso ignroe how this reamd e looks at the moment its still like a veryy hugee wip 
