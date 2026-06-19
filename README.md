@@ -47,5 +47,18 @@ okay guys check out my epic sketches thats lazil y done and unfisnished half of 
 
 <div align="center">
 
-${{\color{#0041c2}{\textsf{okay so uhmm this is a wip cuz im lowk lazy to finish this rn so..\}}}}$
+<details>
+  <summary>
+<img width="20" height="20" alt="woahhorangesunn" src="https://github.com/user-attachments/assets/2d3dd009-fa3e-4372-8f00-2d9e0aff2606" />
+    BYI!!!!
+<img width="20" height="20" alt="woahhorangesunn" src="https://github.com/user-attachments/assets/44df14cd-0323-453d-ab9b-95d288fdb5bb" />
+    </span>
+  </summary>
+
+  <br>
+
+  ${{\color{#f7f1d1}{\textsf{ts a wip too cuz im soo lazy but yeah, im jst gen soo cool and awesome and epic cuz im me\}}}}$
+
+</details>
+
 
