@@ -54,6 +54,8 @@ ${{\color{#BF0A30}{\textsf{✮ There will be more info in my main Git acc but it
 
 ${{\color{#BF0A30}{\textsf{still a wip sooo might as well jst wait for it guyss ⋆˙\}}}}$
 
+${{\color{#BF0A30}{\textsf{✮ might accidentally piss u off by how cocky i am sometimes ⋆˙\}}}}$
+
 ${{\color{#BF0A30}{\textsf{✮ Literally Billy Batson and Conner Kent IRL ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
@@ -156,7 +158,9 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{⌔ Shelly and her friedns please noooo i hate u all sm get away form me ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ IF U SIT BESIDES ME AND ROLEPLAY W ME FOR THE SAKE OF A SHIP U LIKE "WITHOUT" ASKING ME. I will either move away or hide u temporarily\}}}}$
-  ${{\color{#0041c2}{\textsf{once i realise ur doing this.im already awkward with the tpics of shipping and i get sooo awkward and anxious by sudden interactions like this ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{once i realise ur doing this.im already awkward with the tpics of shipping and i get sooo awkward and anxious by sudden interactions\}}}}$
+  ${{\color{#0041c2}{\textsf{like this ⌔ \}}}}$
+
 
 </details>
 
