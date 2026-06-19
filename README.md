@@ -58,14 +58,10 @@ ${{\color{#BF0A30}{\textsf{✮ Literally Billy Batson and Conner Kent IRL ⋆˙\
 
 ${{\color{#BF0A30}{\textsf{✮ Biggest Superman and Plastic Man enthusiast <3⋆˙ \}}}}$
 
-</space>
 
-</space>
-
+</seperate>
 
 
-
--
 <div align="center">
 
 <details>
