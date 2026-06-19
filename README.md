@@ -209,3 +209,5 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{⌔ looking for roleplay= feeling silly and in the mood to roleplay! ⌔ \}}}}$
 
 </details>
+
+$${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
