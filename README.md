@@ -62,7 +62,16 @@ okay guys check out my epic sketches thats lazil y done and unfisnished half of 
 
   <br>
 
-  ${{\color{#f7f1d1}{\textsf{ts a wip too cuz im soo lazy but yeah, im jst gen soo cool and awesome and epic cuz im me\}}}}$
+  ${{\color{#f7f1d1}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times... sooo sorry in advance for this ⌔\}}}}$
+
+  ${{\color{#f7f1d1}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages ⌔ \}}}}$
+
+  ${{\color{#f7f1d1}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
+
+  ${{\color{#f7f1d1}{\textsf{⌔ Friend reqs r off so you might need to ask me first that u wna add me or something ⌔ \}}}}$
+
+  ${{\color{#f7f1d1}{\textsf{⌔ I might say things that might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
+
 
 </details>
 
