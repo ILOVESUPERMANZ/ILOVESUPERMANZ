@@ -28,7 +28,8 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ This is not my main Github account ⚡�
 
 <img align="right"
 width="400"
-alt="plastic man (1)" src="https://github.com/user-attachments/assets/dff6a0f5-a695-4808-a7f5-fe58d9409a95" />
+alt="PUPPUSUOERMAN" src="https://github.com/user-attachments/assets/7776e600-920e-4bab-8374-2e8ca7748671" />
+
 
 ${{\color{#BF0A30}{\textsf{"𝘾𝙖𝙥𝙩𝙖𝙞𝙣 𝙈𝙖𝙧𝙫𝙚𝙡 𝙢𝙖𝙮 𝙝𝙖𝙫𝙚 𝙩𝙝𝙚 𝙘𝙤𝙪𝙧𝙖𝙜𝙚 𝙤𝙛 𝘼𝙘𝙝𝙞𝙡𝙡𝙚𝙨,\}}}}$
 ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨𝙤𝙣 𝙝𝙖𝙨... 𝙩𝙝𝙚 𝙘𝙤𝙪𝙧𝙖𝙜𝙚 𝙤𝙛 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨𝙤𝙣.ᐟ 𝙎𝙃𝘼𝙕𝘼𝙈.ᐟ"\}}}}$
