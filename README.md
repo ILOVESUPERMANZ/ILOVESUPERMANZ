@@ -86,12 +86,77 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ I use my comf cxhars to cope so if u "HATE" one of them i might take it veryyy personally ⌔ \}}}}$
 
+  ${{\color{#0041c2}{\textsf{⌔ I usually dont realise my spelling and grammar mistakes at times so i never get to correct them ⌔ \}}}}$
+
   ${{\color{#0041c2}{\textsf{⌔ I dont use tone tags much often so be aware and cautious of this, especially if u need tone tags constantly ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I mostly read the comics instead of watching the films and movies so i mgiht now understand u and get confused when discussing\}}}}$
   ${{\color{#0041c2}{\textsf{the films ⌔ \}}}}$
 
+  ${{\color{#0041c2}{\textsf{⌔ ALWAYS FEEL FREE TO APPROACH ME!!! I LOVEEE TALKINGG TO NEW PEOPLE!!! ⌔ \}}}}$
+  
+  ${{\color{#0041c2}{\textsf{⌔ Expect me to actuall y sitj with u if u have C+H in ur name whenevr im sitting alone ⌔ \}}}}$
+
+
+  ${{\color{#0041c2}{\textsf{⌔ Usually dont hang around much at the comics area so u might now see me there for days or even weeks cuz im usually staying\}}}}$
+  ${{\color{#0041c2}{\textsf{in diff spotss ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ My spelling and grammar sucks a lott especially when i get too excited soo sorry if u dont understand me at times⌔ \}}}}$
+  
+  ${{\color{#0041c2}{\textsf{⌔ I tend to hide people temporarily if they somehow managed to annoy me or idk, if the area im at gets too crowded ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ IM VERY AFFECTIONATE WITH MY FRIENDS! I can worry and care too mucxh amd i tend to call my friends nicknames and say ILY to them\}}}}$
+  ${{\color{#0041c2}{\textsf{but PLEASE never mistaken this for something romantical my love towards my friends r purely platonic ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ I will unfriend u if we're not close and havent talked to eachother in over 3 months straight ⌔ \}}}}$
 
 </details>
 
+
+<details>
+  <summary>
+<img width="20" height="20" alt="IWECSUP" src="https://github.com/user-attachments/assets/357ab01d-fd04-4f08-86bd-7b2769aabcc0" />
+  IWEC!!
+<img width="20" height="20" alt="IWECSUP" src="https://github.com/user-attachments/assets/d3c09e3b-2e20-4562-a9a3-7ab653f82f33" />
+   </span>
+  </summary>
+
+  <br>
+
+  ${{\color{#0041c2}{\textsf{⌔ People in comics area gulpss nohtinh personal!! I jst tend to get very shy and awkward at first interacting with some of youu ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ Shippers. Idm ships im jst very awkward with this topic cuz i barely ship characterrs together ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ Systems. Not against systems!! jst uneducated in it and i jst get soo anxious and worry too much that i might accidentally do something\}}}}$
+  ${{\color{#0041c2}{\textsf{that will offend yall and overthink too much when interating ⌔ \}}}}$
+
+  </details>
+
+  <details>
+  <summary>
+<img width="20" height="20" alt="sadspoderman" src="https://github.com/user-attachments/assets/7fea2dad-3343-4db4-b813-192025850e86" />
+   DNI PLSSPLS NO
+<img width="20" height="20" alt="sadspoderman" src="https://github.com/user-attachments/assets/601c5dcc-3d45-4e2d-984c-e28bcdf355df" />
+    </span>
+  </summary>
+
+  <br>
+
+  ${{\color{#0041c2}{\textsf{⌔ Anti Xenogenders and Neopronouns ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ If you make veryy bad and sick jokes of serious topics like slavery, racism, disabilities, 9/11, war, epstein files, etc ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ if youre a veryyy badd person, like very veryy bad ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ If you find how i act and talk weird and dont like it. It makes me veryy sad and miserable and ashamed cuz i jst wnna have fun\}}}}$
+  ${{\color{#0041c2}{\textsf{playoing PT expressing myself mann ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ If you mock and make fun of my spelling and grammar mistakes. this also makes me sad cuz im already self-consious abt it ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ Shelly and her friedns please noooo i hate u all sm get away form me ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ IF U SIT BESIDES ME AND ROLEPLAY W ME FOR THE SAKE OF A SHIP U LIKE "WITHOUT" ASKING ME. I will either move away or hide u temporarily\}}}}$
+  ${{\color{#0041c2}{\textsf{once i realise ur doing this.im already awkward with the tpics of shipping and i get sooo awkward and anxious by sudden interactions like this ⌔ \}}}}$
+
+</details>
 
