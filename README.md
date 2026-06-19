@@ -44,3 +44,8 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
 </table>
 
 okay guys check out my epic sketches thats lazil y done and unfisnished half of thew timeee in my other public respiratroyy!!! it only has dc for now... pluhh. more sketches and arts on my main github thoughh. ALso ignroe how this reamd e looks at the moment its still like a veryy hugee wip 
+
+<div align="center">
+
+${{\color{#0041c2}{\textsf{okay so uhmm this is a wip cuz im lowk lazy to finish this rn so..\}}}}$
+
