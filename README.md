@@ -88,7 +88,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ I dont use tone tags much often so be aware and cautious of this, especially if u need tone tags constantly ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ I mostly read the comics instead of watching the films and movies so i mgiht now understand u and get confused when u talk aboiut the films ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I mostly read the comics instead of watching the films and movies so i mgiht now understand u and get confused when discussing\}}}}$
+  ${{\color{#0041c2}{\textsf{the films ⌔ \}}}}$
 
 
 </details>
