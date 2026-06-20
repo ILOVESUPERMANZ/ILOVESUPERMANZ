@@ -99,7 +99,6 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   
   ${{\color{#0041c2}{\textsf{⌔ Expect me to actuall y sitj with u if u have C+H in ur name whenevr im sitting alone ⌔ \}}}}$
 
-
   ${{\color{#0041c2}{\textsf{⌔ Usually dont hang around much at the comics area so u might now see me there for days or even weeks cuz im usually staying\}}}}$
   ${{\color{#0041c2}{\textsf{in diff spotss ⌔ \}}}}$
 
