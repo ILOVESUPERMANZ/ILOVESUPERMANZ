@@ -5,7 +5,7 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 $${{\color{#0041c2}{\textsf{ ⌔ Billy Batson and Kon-El kin ⌔ \}}}}$$
 
-[𝚐𝚞𝚗𝚜𝚕𝚘𝚕](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@SUPERPUP)  $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ᴀᴛᴀʙᴏᴏᴋ](https://ilovesuperman.atabook.org/)
+[𝗀𝗎𝗇𝗌𝗅𝗈𝗅](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌.𝖼𝖼](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://ilovesuperman.atabook.org/)  $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://ilovesupermanz.straw.page)
 
 <br><br>
 
