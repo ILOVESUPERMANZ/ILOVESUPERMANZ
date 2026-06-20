@@ -105,7 +105,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{⌔ I tend to hide people temporarily if they somehow managed to annoy me or idk, if the area im at gets too crowded ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ IM VERY AFFECTIONATE WITH MY FRIENDS! I can worry and care too mucxh amd i tend to call my friends nicknames and say ILY to them\}}}}$
-  ${{\color{#0041c2}{\textsf{but PLEASE never mistaken this for something romantical my love towards my friends r purely platonic ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{so be aware of this if u intend to become my friend and \}}}}$
+  ${{\color{#0041c2}{\textsf{PLEASE never mistaken this for something romantical my love towards my friends r purely platonic ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I will unfriend u if we're not close and havent talked to eachother in over 3 months straight ⌔ \}}}}$
 
