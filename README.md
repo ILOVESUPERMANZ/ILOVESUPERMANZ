@@ -44,19 +44,17 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
   </tr>
 </table>
 
-${{\color{#BF0A30}{\textsf{✮ Github is a WIP. Everything drawn here is drawn by me ⋆˙ \}}}}$
+${{\color{#BF0A30}{\textsf{✮ Literally Billy Batson and Conner Kent IRL ⋆˙ \}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ PLEASE atleast check evrything linked here to knnow more info\}}}}$
+${{\color{#BF0A30}{\textsf{✮ Youre interactions with my may sometimes be not the best\}}}}$
 
-${{\color{#BF0A30}{\textsf{abt me before u interact or smthing. I appreciate it a lott ⋆˙ \}}}}$
+${{\color{#BF0A30}{\textsf{due to how frustrating I can get due to how cocky, brash, and\}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ There will be more info in my main Git acc but its also\}}}}$
+${{\color{#BF0A30}{\textsf{overconfident I can get sometimes ⋆˙\}}}}$
 
-${{\color{#BF0A30}{\textsf{still a wip sooo might as well jst wait for it guyss ⋆˙\}}}}$
+${{\color{#BF0A30}{\textsf{✮ I often dont use tone tags much so be cautios of this if u\}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ might accidentally piss u off by how cocky i am sometimes ⋆˙\}}}}$
-
-${{\color{#BF0A30}{\textsf{✮ Literally Billy Batson and Conner Kent IRL ⋆˙\}}}}$
+${{\color{#BF0A30}{\textsf{need one constantly ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
 
