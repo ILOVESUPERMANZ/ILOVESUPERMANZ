@@ -56,6 +56,9 @@ ${{\color{#BF0A30}{\textsf{✮ I often dont use tone tags much so be cautios of 
 
 ${{\color{#BF0A30}{\textsf{need one constantly ⋆˙\}}}}$
 
+${{\color{#BF0A30}{\textsf{✮ May unintentionally come off as rude sometimes... I deeply\}}}}$
+${{\color{#BF0A30}{\textsf{apologize in advance for this ⋆˙\}}}}$
+
 ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
 
 
@@ -87,8 +90,6 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{⌔ I use my comf cxhars to cope so if u "HATE" one of them i might take it veryyy personally ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I usually dont realise my spelling and grammar mistakes at times so i never get to correct them ⌔ \}}}}$
-
-  ${{\color{#0041c2}{\textsf{⌔ I dont use tone tags much often so be aware and cautious of this, especially if u need tone tags constantly ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I mostly read the comics instead of watching the films and movies so i mgiht now understand u and get confused when discussing\}}}}$
   ${{\color{#0041c2}{\textsf{the films ⌔ \}}}}$
