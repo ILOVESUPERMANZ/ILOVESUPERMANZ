@@ -46,7 +46,7 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
 
 ${{\color{#BF0A30}{\textsf{✮ Literally Billy Batson and Conner Kent IRL ⋆˙ \}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ Youre interactions with my may sometimes be not the best\}}}}$
+${{\color{#BF0A30}{\textsf{✮ Your interactions with my may sometimes be not the best\}}}}$
 
 ${{\color{#BF0A30}{\textsf{due to how frustrating I can get due to how cocky, brash, and\}}}}$
 
