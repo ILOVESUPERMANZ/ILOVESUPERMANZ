@@ -219,7 +219,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{watching medias of my comf chars and fandoms. Still free to int though!! Its jst a DNI since I prob wont respond or\}}}}$
   ${{\color{#0041c2}{\textsf{acknowledge you through nodding and booping or jst by staring at you or respond verryyy latee. C+H also heavyily appreciated ⌔ \}}}}$
   
-  ${{\color{#0041c2}{\textsf{⌔ ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ C+H enc= yesyes jst like what the name says c+h encouraged for eveyrone yes plss int w mee!!! ⌔ \}}}}$
 
 </details>
 
