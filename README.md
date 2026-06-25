@@ -210,6 +210,17 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ looking for roleplay= feeling silly and in the mood to roleplay! ⌔ \}}}}$
 
+  ${{\color{#ee9f27}{\textsf{⌔ NAME STATUS ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ IWEC= bad mood and stressed, might come off as dry, awkward or accidentally say rude stuffss. C+H heavily appreciated\}}}}$
+  ${{\color{#0041c2}{\textsf{even if I dont know u or not close w at all ⌔ \}}}}$
+
+  ${{\color{#0041c2}{\textsf{⌔ DNI= VERYYY bad mood and overwhelmed. Might be doing something else to cope and calm myself downn. Prob reading comics or\}}}}$
+  ${{\color{#0041c2}{\textsf{watching medias of my comf chars and fandoms. Still free to int though!! Its jst a DNI since I prob wont respond or\}}}}$
+  ${{\color{#0041c2}{\textsf{acknowledge you through nodding and booping or jst by staring at you or respond verryyy latee. C+H also heavyily appreciated ⌔ \}}}}$
+  
+  ${{\color{#0041c2}{\textsf{⌔ ⌔ \}}}}$
+
 </details>
 
 $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
