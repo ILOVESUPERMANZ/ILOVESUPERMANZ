@@ -220,6 +220,11 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{acknowledge you through nodding and booping or jst by staring at you or respond verryyy latee. C+H also heavyily appreciated ⌔ \}}}}$
   
   ${{\color{#0041c2}{\textsf{⌔ C+H enc= yesyes jst like what the name says c+h encouraged for eveyrone yes plss int w mee!!! ⌔ \}}}}$
+  
+  ${{\color{#0041c2}{\textsf{⌔ DNIDNI= Double DNI usually means I realyy dont want anyone interacting with me at the moment. Might temporarily hide people \}}}}$
+  ${{\color{#0041c2}{\textsf{or walk off when getting interacted with though I rarely use this cuz cmon, this is PT, a socializing game ⌔ \}}}}$
+  
+  ${{\color{#0041c2}{\textsf{⌔ DNIUF= hmmm yeah same as above but mostly jst want my friends to int w mee ⌔ \}}}}$
 
 </details>
 
