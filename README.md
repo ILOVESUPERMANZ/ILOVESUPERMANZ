@@ -100,7 +100,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   
   ${{\color{#0041c2}{\textsf{⌔ Expect me to actuall y sitj with u if u have C+H in ur name whenevr im sitting alone ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ Usually dont hang around much at the comics area so u might now see me there for days or even weeks cuz im usually staying\}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ Usually dont hang around much at the comics area so u might not see me there for days or even weeks cuz im usually staying\}}}}$
   ${{\color{#0041c2}{\textsf{in diff spotss ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ My spelling and grammar sucks a lott especially when i get too excited soo sorry if u dont understand me at times⌔ \}}}}$
@@ -133,7 +133,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{⌔ Shippers. Idm ships im jst very awkward with this topic cuz i barely ship characterrs together ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ Systems. Not against systems!! jst uneducated in it and i jst get soo anxious and worry too much that i might accidentally do something\}}}}$
-  ${{\color{#0041c2}{\textsf{that will offend yall and overthink too much when interating ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{that will offend yall and overthink too much when interacting ⌔ \}}}}$
 
   </details>
 
