@@ -128,6 +128,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ People in comics area gulpss nohtinh personal!! I jst tend to get very shy and awkward at first interacting with some of youu ⌔ \}}}}$
 
+  ${{\color{#0041c2}{\textsf{⌔ 18+ cuz like ur very older than me and cuz ur adult, will have hard time getting along w u and I get very nervy w older ppl ⌔ \}}}}$
+
   ${{\color{#0041c2}{\textsf{⌔ Shippers. Idm ships im jst very awkward with this topic cuz i barely ship characterrs together ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ Systems. Not against systems!! jst uneducated in it and i jst get soo anxious and worry too much that i might accidentally do something\}}}}$
