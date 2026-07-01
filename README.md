@@ -77,7 +77,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   <br>
 
-  ${{\color{#0041c2}{\textsf{⌔ You can BMF even if ur awkward, dry or not that talkative in general idm im very friendly to all <33 jst hmu! ⌔\}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I have DPDR and CSBD (healing from this one). I tend to get overwhelmed at certain things easily. Im sorry if I end up\}}}}$
+  ${{\color{#0041c2}{\textsf{being a lot to handle and sensitive because of this and suddenly act off or weird at certain days bcuz of this ⌔\}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times gulps... sooo sorry in advance for this ⌔\}}}}$
 
