@@ -44,7 +44,7 @@ ${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨�
   </tr>
 </table>
 
-${{\color{#BF0A30}{\textsf{✮ Literally Conner Kent IRL if he was a tomboy ⋆˙ \}}}}$
+${{\color{#BF0A30}{\textsf{✮ Lit Kon-El IRL if he was a tomboy ⋆˙ \}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Your interactions with my may sometimes be not the best\}}}}$
 
@@ -52,12 +52,12 @@ ${{\color{#BF0A30}{\textsf{due to how frustrating I can get due to how cocky, br
 
 ${{\color{#BF0A30}{\textsf{overconfident I can get sometimes ⋆˙\}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ I often dont use tone tags much so be cautios of this if u\}}}}$
+${{\color{#BF0A30}{\textsf{✮ I often dont use tone tags much so be cautious of this if u\}}}}$
 
 ${{\color{#BF0A30}{\textsf{need one constantly ⋆˙\}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ May unintentionally come off as rude sometimes... I deeply\}}}}$
-${{\color{#BF0A30}{\textsf{apologize in advance for this ⋆˙\}}}}$
+${{\color{#BF0A30}{\textsf{✮ I DO NOT SHIP KON-EL AND KAL-EL TOGETHER. Kal-El is simply\}}}}$
+${{\color{#BF0A30}{\textsf{my beloved older brother and he gives me joy and comfort ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
 
