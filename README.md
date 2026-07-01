@@ -9,7 +9,7 @@ $${{\color{#0041c2}{\textsf{ ⌔ Kon-El IRL ⌔ \}}}}$$
 
 <br><br>
 
-$${{\color{#0041c2}\Large{\textsf{⚡︎ Yes I do believe I am him IRL. I do not doubls and I simply believe Kal-El is my dearest older brother ⚡︎\}}}}$$
+$${{\color{#0041c2}\Large{\textsf{⚡︎ Yes I do believe I am him IRL. I simply believe Kal-El is my dearest older brother ⚡︎\}}}}$$
 
 <p align="center">
 <img width="60" height="35" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
