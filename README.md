@@ -3,13 +3,13 @@ $${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
 
 <div align="center">
 
-$${{\color{#0041c2}{\textsf{ ⌔ Billy Batson and Kon-El kin ⌔ \}}}}$$
+$${{\color{#0041c2}{\textsf{ ⌔ Kon-El IRL ⌔ \}}}}$$
 
 [𝗀𝗎𝗇𝗌𝗅𝗈𝗅](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌.𝖼𝖼](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://ilovesuperman.atabook.org/)  $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://ilovesupermanz.straw.page)
 
 <br><br>
 
-$${{\color{#0041c2}\Large{\textsf{⚡︎ Hai yes BMF im friendly trusttt!! ⚡︎\}}}}$$
+$${{\color{#0041c2}\Large{\textsf{⚡︎ Yes I do believe I am him IRL. I do not doubls and I simply believe Kal-El is my dearest older brother ⚡︎\}}}}$$
 
 <p align="center">
 <img width="60" height="35" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
