@@ -82,6 +82,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times gulps... sooo sorry in advance for this ⌔\}}}}$
 
+  ${{\color{#0041c2}{\textsf{⌔ I DO think i am Kon-El IRL alongside w other chars and no im not a sys ⌔ \}}}}$
+
   ${{\color{#0041c2}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
@@ -178,7 +180,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   <br>
 
-  ${{\color{#0041c2}{\textsf{⌔ GOLDEN RETRIEVERS THEY R SOOO CUTE AWHHHHH HADUHAD; ASD ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ GOLDEN RETRIEVERS AND PUPPIES/DOGS THEY R SOOO CUTE AWHHHHH HADUHAD; ASD ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ Rainbows, sun and clouds!! they lit sooo pretty i love taking pictures of them and watching themm ⌔ \}}}}$
 
