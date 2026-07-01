@@ -31,8 +31,8 @@ width="390"
 alt="PUPPUSUOERMAN" src="https://github.com/user-attachments/assets/7776e600-920e-4bab-8374-2e8ca7748671" />
 
 
-${{\color{#BF0A30}{\textsf{"𝘾𝙖𝙥𝙩𝙖𝙞𝙣 𝙈𝙖𝙧𝙫𝙚𝙡 𝙢𝙖𝙮 𝙝𝙖𝙫𝙚 𝙩𝙝𝙚 𝙘𝙤𝙪𝙧𝙖𝙜𝙚 𝙤𝙛 𝘼𝙘𝙝𝙞𝙡𝙡𝙚𝙨,\}}}}$
-${{\color{#bf0a30}{\textsf{𝙗𝙪𝙩 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨𝙤𝙣 𝙝𝙖𝙨... 𝙩𝙝𝙚 𝙘𝙤𝙪𝙧𝙖𝙜𝙚 𝙤𝙛 𝘽𝙞𝙡𝙡𝙮 𝘽𝙖𝙩𝙨𝙤𝙣.ᐟ 𝙎𝙃𝘼𝙕𝘼𝙈.ᐟ"\}}}}$
+${{\color{#BF0A30}{\textsf{"𝙏𝙧𝙪𝙩𝙝, 𝙟𝙪𝙨𝙩𝙞𝙘𝙚... 𝙖𝙣𝙙 𝙩𝙝𝙚 𝘼𝙢𝙚𝙧𝙞𝙘𝙖𝙣 𝙬𝙖𝙮?\}}}}$
+${{\color{#bf0a30}{\textsf{𝙉𝙖𝙝. 𝙄𝙩'𝙨 𝙖𝙗𝙤𝙪𝙩 𝙗𝙚𝙞𝙣𝙜 𝙮𝙤𝙪𝙧 𝙤𝙬𝙣 𝙥𝙚𝙧𝙨𝙤𝙣."\}}}}$
 
 <div align="left">
 <table>
