@@ -192,7 +192,9 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{⌔ cuddling with others! yes i find it veryy adorbs and cute when ur pixel ponies sits and cuddle besides mine!!\}}}}$
   ${{\color{#0041c2}{\textsf{so likee C+H always encourage!!! ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ SUPERMSN AND PLASTIC MANN!!! I LOVEE THEM BOTH SMMMM THYE MAKE ME SOO HAPPY AND HGELPS ME THROUGH BAD DAYS <3 ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ SUPERMSN N!!! I LOVEE HIM BOTH SMMMM HE MAKE ME SOO HAPPY AND HGELPS ME THROUGH BAD DAYS <3 ⌔ \}}}}$
+ 
+  ${{\color{#0041c2}{\textsf{⌔ Plastic Mann too cuz he gen gives me soo much joy and I find him soo silly and act funny ⌔ \}}}}$
 
 </details>
 
