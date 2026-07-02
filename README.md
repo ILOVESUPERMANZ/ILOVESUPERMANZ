@@ -70,7 +70,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 <details>
   <summary>
 <img width="20" height="20" alt="woahhorangesunn" src="https://github.com/user-attachments/assets/2d3dd009-fa3e-4372-8f00-2d9e0aff2606" />
-    BYI!!!!
+   INFO!!!
 <img width="20" height="20" alt="woahhorangesunn" src="https://github.com/user-attachments/assets/44df14cd-0323-453d-ab9b-95d288fdb5bb" />
     </span>
   </summary>
@@ -78,7 +78,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   <br>
 
   ${{\color{#0041c2}{\textsf{⌔ I have DPDR and CSBD (healing from this one). I tend to get overwhelmed at certain things easily. Im sorry if I end up\}}}}$
-  ${{\color{#0041c2}{\textsf{being a lot to handle and sensitive because of this and suddenly act off or weird at certain days bcuz of this ⌔\}}}}$
+  ${{\color{#0041c2}{\textsf{being a lot to handle and sensitive because of this and suddenly act off or weird at certain days and randomly have sudden mood swings\}}}}$
+  ${{\color{#0041c2}{\textsf{because of this ⌔\}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times gulps... sooo sorry in advance for this ⌔\}}}}$
 
