@@ -14,7 +14,7 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ Yes I do believe I am him IRL. I simply
 <p align="center">
 <img width="60" height="35" alt="Pupgender" src="https://github.com/user-attachments/assets/55807178-fb46-49e9-b9a2-7881dcec64ce" />
 <img width="60" height="35" alt="which-bigender-flag-do-you-prefer-not-including-the-og-flag-v0-4xzxenmvv69b1" src="https://github.com/user-attachments/assets/23e10a77-eeb8-4f73-a46a-2d621b7b8888" />
-<img width="60" height="35" alt="Pansexuality_Pride_Flag svg" src="https://github.com/user-attachments/assets/9a13e66b-1906-4e95-88ce-d96175ae00cd" />
+<img width="60" height="35" alt="which-flag-is-the-official-panromantic-flag-v0-601krat7a51e1" src="https://github.com/user-attachments/assets/f41a66b3-ad22-4ca7-8122-6c456dbd5470" />
 
 <div align="center">
 
