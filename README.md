@@ -77,7 +77,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   <br>
 
-  ${{\color{#0041c2}{\textsf{⌔ I have DPDR and CSBD (healing from this one). I tend to get overwhelmed at certain things easily. Im sorry if I end up\}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I have DPDR. I tend to get overwhelmed at certain things easily. Im sorry if I end up\}}}}$
   ${{\color{#0041c2}{\textsf{being a lot to handle and sensitive because of this and suddenly act off or weird at certain days and randomly have sudden mood swings\}}}}$
   ${{\color{#0041c2}{\textsf{because of this ⌔\}}}}$
 
