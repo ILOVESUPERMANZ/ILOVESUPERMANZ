@@ -89,7 +89,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ Friend reqs r off since idont accept random friend req. Might need to talk to me for a few days to finally add u ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ Friend reqs r off since idont accept random friend req. Might need to talk to me for a few days to finally add u. But I \}}}}$
+  ${{\color{#0041c2}{\textsf{will unfriend u if we arent that close and havent talked to eachother in a month straight ⌔\}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I might say weird and rude things might t make u uncomfy please tell me if i do cuz ill apologize immediatelu ⌔ \}}}}$
 
@@ -115,7 +116,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{so be aware of this if u intend to become my friend and \}}}}$
   ${{\color{#0041c2}{\textsf{PLEASE never mistaken this for something romantical my love towards my friends r purely platonic ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ I will unfriend u if we're not close and havent talked to eachother in over 3 months straight ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ I usually have little to no care some certain things. I also don t care abt doubles much like im chill w it ⌔ \}}}}$
 
 </details>
 
