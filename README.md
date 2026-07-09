@@ -57,7 +57,7 @@ ${{\color{#BF0A30}{\textsf{✮ I often dont use tone tags much so be cautious of
 ${{\color{#BF0A30}{\textsf{need one constantly ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ I DO NOT SHIP KON-EL AND KAL-EL TOGETHER. Kal-El is simply\}}}}$
-${{\color{#BF0A30}{\textsf{my beloved older brother and he gives me joy and comfort ⋆˙\}}}}$
+${{\color{#BF0A30}{\textsf{Kon-El's beloved older brother ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
 
