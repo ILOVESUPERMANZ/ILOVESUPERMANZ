@@ -28,7 +28,8 @@ $${{\color{#0041c2}\Large{\textsf{⚡︎ Yes im def Kon-El IRL guys and Superman
 
 <img align="right"
 width="390"
-alt="PUPPUSUOERMAN" src="https://github.com/user-attachments/assets/7776e600-920e-4bab-8374-2e8ca7748671" />
+alt="SUPERMANANDSUPERBOYAWHH" src="https://github.com/user-attachments/assets/ea72aa21-e736-4069-b145-c97955a76604" />
+
 
 
 ${{\color{#BF0A30}{\textsf{"𝙏𝙧𝙪𝙩𝙝, 𝙟𝙪𝙨𝙩𝙞𝙘𝙚... 𝙖𝙣𝙙 𝙩𝙝𝙚 𝘼𝙢𝙚𝙧𝙞𝙘𝙖𝙣 𝙬𝙖𝙮?\}}}}$
