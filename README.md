@@ -79,7 +79,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ Yadayada im a nerdy tomboy punk irl who has hirsutis and believes they r Kon-El irl and uses Superman as a big bro to cope\}}}}$
   ${{\color{#0041c2}{\textsf{and shii and def wants to be a puppy. Also a gen loser who has wants long term friends but has a hard time maintaining\}}}}$
-  ${{\color{#0041c2}{\textsf{friendships online ⌔\}}}}$
+  ${{\color{#0041c2}{\textsf{friendships online.... cough ⌔\}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I tend to get derealization-depersonalization episodes that often and get overwhelmed at certain things easily. Im sorry if I end up\}}}}$
   ${{\color{#0041c2}{\textsf{being a lot to handle and sensitive because of this and suddenly act off or weird at certain days and randomly have sudden mood swings\}}}}$
