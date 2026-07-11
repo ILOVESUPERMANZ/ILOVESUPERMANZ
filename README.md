@@ -57,8 +57,8 @@ ${{\color{#BF0A30}{\textsf{✮ I often dont use tone tags much so be cautious of
 
 ${{\color{#BF0A30}{\textsf{need one constantly ⋆˙\}}}}$
 
-${{\color{#BF0A30}{\textsf{✮ I DO NOT SHIP KON-EL AND KAL-EL TOGETHER. Please dont mistake\}}}}$
-${{\color{#BF0A30}{\textsf{ me as a darkshipper ⋆˙\}}}}$
+${{\color{#BF0A30}{\textsf{✮ I DO NOT SHIP KON-EL AND KAL-EL TOGETHER. Please dont\}}}}$
+${{\color{#BF0A30}{\textsf{mistaken me as a darkshipper ⋆˙\}}}}$
 
 ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ \}}}}$
 
