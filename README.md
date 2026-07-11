@@ -88,7 +88,8 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ I can get extremely cocky and frustrating at times and tend to glaze myself a lot of times gulps... sooo sorry in advance for this ⌔\}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages ⌔ \}}}}$
+  ${{\color{#0041c2}{\textsf{⌔ W2I most times whenever im alone!!! usually offtab when sitting alone and may not see ur messages and cuz pony town isnt showing\}}}}$
+  ${{\color{#0041c2}{\textsf{other ppls chat bubbles for me for some reason ⌔ \}}}}$
 
   ${{\color{#0041c2}{\textsf{⌔ I REALLYY LIKE TALKING AND YAPPING ABT ALMOSTY EVRYTHING AND USUALLY TALKATIVE!! ⌔\}}}}$
 
