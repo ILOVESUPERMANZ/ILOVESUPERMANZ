@@ -1,11 +1,11 @@
 
-$${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
+$${{\color{#0041C2}\Large{\textsf{── ⋆⋅☆⋅⋆ ──\}}}}$$
 
 <div align="center">
 
 $${{\color{#0041c2}{\textsf{ ⌔ Kon-El IRL ⌔ \}}}}$$
 
-[𝗀𝗎𝗇𝗌𝗅𝗈𝗅](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌.𝖼𝖼](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://ilovesupermanz.straw.page)
+[ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://ilovesupermanz.straw.page) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ＡＴＡＢＯＯＫ]https://ilovesuperman.atabook.org/
 
 <br><br>
 
@@ -241,4 +241,4 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
 </details>
 
-$${{\color{#0041C2}\Large{\textsf{🗲 ˗ˏˋ ★ ˎˊ˗ 🗲\}}}}$$
+$${{\color{#0041C2}\Large{\textsf{── ⋆⋅☆⋅⋆ ──\}}}}$$
