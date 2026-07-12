@@ -5,7 +5,7 @@ $${{\color{#0041C2}\Large{\textsf{── ⋆⋅☆⋅⋆ ──\}}}}$$
 
 $${{\color{#0041c2}{\textsf{ ⌔ Kon-El IRL ⌔ \}}}}$$
 
-[ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://ilovesupermanz.straw.page) $${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
+[ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://ilovesupermanz.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
 
 <br><br>
 
