@@ -160,8 +160,6 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
 
   ${{\color{#0041c2}{\textsf{⌔ If you make veryy bad and sick jokes of serious topics like slavery, racism, disabilities, 9/11, war, epstein files, etc ⌔ \}}}}$
 
-  ${{\color{#0041c2}{\textsf{⌔ if youre a veryyy badd person, like very veryy bad ⌔ \}}}}$
-
   ${{\color{#0041c2}{\textsf{⌔ If you find how i act and talk weird and dont like it. It makes me veryy sad and miserable and ashamed cuz i jst wnna have fun\}}}}$
   ${{\color{#0041c2}{\textsf{playoing PT expressing myself mann ⌔ \}}}}$
 
@@ -173,6 +171,7 @@ ${{\color{#BF0A30}{\textsf{✮ Big Superman and Plastic Man enthusiast <3 ⋆˙ 
   ${{\color{#0041c2}{\textsf{once i realise ur doing this.im already awkward with the tpics of shipping and i get sooo awkward and anxious by sudden interactions\}}}}$
   ${{\color{#0041c2}{\textsf{like this ⌔ \}}}}$
 
+ ${{\color{#0041c2}{\textsf{⌔ Other than this im not exactly strict w my DNI. I block freely if u gen creep me out or smthiung ⌔ \}}}}$
 
 </details>
 
