@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img width="400" height="360" alt="SUPERMANANDSUPERBOYAWHH" src="https://github.com/user-attachments/assets/5bf51d16-4066-465d-8163-f4dffa691a4f" />
+<img height="360" alt="SUPERMANANDSUPERBOYAWHH" src="https://github.com/user-attachments/assets/5bf51d16-4066-465d-8163-f4dffa691a4f" />
 <br><br>
 
 <p align="center">
