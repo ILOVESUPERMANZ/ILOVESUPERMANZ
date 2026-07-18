@@ -11,3 +11,5 @@
 <p align="center">
 <img height="85" alt="Untitled20_20260718173604" src="https://github.com/user-attachments/assets/aeb165e2-a9c6-4db4-9962-f6b350b8a8d2" />
 <br><br>
+
+[ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://ilovesupermanz.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
