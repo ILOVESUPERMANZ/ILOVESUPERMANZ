@@ -2,7 +2,7 @@
 <img height="360" alt="SUPERMANANDSUPERBOYAWHH" src="https://github.com/user-attachments/assets/5bf51d16-4066-465d-8163-f4dffa691a4f" />
 <br><br>
 
-<p align="right">
+<p align="left">
   <a href="https://git.io/typing-svg">
     <img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&Convergence&pause=1000&color=B30000&width=435&lines=TRUTH,+JUSTICE...+AND+THE+AMERICAN+WAY?+NAH.+IT'S+ABOUT+BEING+YOU+OWN+PERSON" alt="Typing SVG" />
   </a>
