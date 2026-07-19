@@ -18,7 +18,7 @@
 [ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://supermanluver.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
 
 <br><br>
-<img height="22" alt="doggy" src="https://github.com/user-attachments/assets/ff26e27e-9757-435c-9bdf-49eaf524030c" />
+<img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
 
 $${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry ﹒Punk Tomboy , No Masc terms ﹒   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
 
