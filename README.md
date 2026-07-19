@@ -24,4 +24,4 @@ $${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Ko
 
 $${{\color{#d98213}{\textsf{‧˚꒰🐾  ◞ Panromantic ಄ Bigender ಄ Pupgender ୭˚. \}}}}$$
 
-$${{\color{#d98213}{\textsf{ ฅ ฅ 𑣲 14 y.o ᛝ 08/13/2011    ★ Kon-El Fictkin     ૮˶- ﻌ -˶ა⌒)ᦱ  \}}}}$$
+$${{\color{#2554b4}{\textsf{ ฅ ฅ 𑣲 14 y.o ᛝ 08/13/2011    ★ Kon-El Fictkin     ૮˶- ﻌ -˶ა⌒)ᦱ  \}}}}$$
