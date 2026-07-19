@@ -22,4 +22,5 @@
 $${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry ﹒Punk Tomboy , No Masc terms ﹒   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
 
 <img width="23" height="22" alt="doggy" src="https://github.com/user-attachments/assets/ff26e27e-9757-435c-9bdf-49eaf524030c" />
+
 $${{\color{#d98213}{\textsf{‧˚꒰🐾  ◞ Panromantic ಄ Bigender ಄ Pupgender ୭˚. \}}}}$$
