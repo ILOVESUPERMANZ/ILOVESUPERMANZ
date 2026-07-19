@@ -18,3 +18,5 @@
 [ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://supermanluver.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
 
 <br><br>
+
+$${{\color{#0041C2}\Large{\textsf{Zilch or Kon \}}}}$$
