@@ -18,9 +18,10 @@
 [ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://supermanluver.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
 
 <br><br>
+<img height="22" alt="doggy" src="https://github.com/user-attachments/assets/ff26e27e-9757-435c-9bdf-49eaf524030c" />
 
 $${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry ﹒Punk Tomboy , No Masc terms ﹒   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
 
-<img width="23" height="22" alt="doggy" src="https://github.com/user-attachments/assets/ff26e27e-9757-435c-9bdf-49eaf524030c" />
-
 $${{\color{#d98213}{\textsf{‧˚꒰🐾  ◞ Panromantic ಄ Bigender ಄ Pupgender ୭˚. \}}}}$$
+
+$${{\color{#d98213}{\textsf{ ฅ ฅ 𑣲 14 y.o ᛝ 08/13/2011    ★ Kon-El Fictkin     ૮˶- ﻌ -˶ა⌒)ᦱ  \}}}}$$
