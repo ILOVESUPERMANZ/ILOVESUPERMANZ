@@ -19,4 +19,4 @@
 
 <br><br>
 
-$${{\color{#0041C2}\Large{\textsf{Zilch or Kon \}}}}$$
+$${{\color{#0041C2}\Large{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  \}}}}$$
