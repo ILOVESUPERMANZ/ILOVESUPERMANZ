@@ -19,4 +19,4 @@
 
 <br><br>
 
-$${{\color{#0041C2}\Large{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  \}}}}$$
+$${{\color{#0041C2}\Large{\textsf{૮₍｡•̀ ﻌ •́｡₎ა ゛ Zilch or Kon ⸝⸝ Furry ﹒Tomboy , No Masc terms ﹒   Sheَ Pup 𐂯 .ᐟ⸝⸝ \}}}}$$
