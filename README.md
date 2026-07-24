@@ -20,8 +20,8 @@
 <br><br>
 <img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
 
-$${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry ﹒Punk Tomboy , No Masc terms ﹒   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
+$${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry     ,    No Masc terms preferred  .   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
 
-$${{\color{#d98213}{\textsf{‧˚꒰🐾  ◞ Panromantic ಄ Bigender ಄ Pupgender ୭˚. \}}}}$$
+$${{\color{#d98213}{\textsf{‧˚꒰🐾   ◞ Panromantic    ಄    Bigender ಄    Pupgender ୭˚. \}}}}$$
 
 $${{\color{#2554b4}{\textsf{ ฅ ฅ 𑣲 14 y.o ᛝ 08/13/2011    ★ Kon-El Fictkin     . 𝑺uperman fan ‹𝟹 ૮˶- ﻌ -˶ა⌒)ᦱ  \}}}}$$
