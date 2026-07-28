@@ -17,6 +17,10 @@
 
 [ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://supermanluver.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
 
+<img width="23" height="22" alt="doggy" src="https://github.com/user-attachments/assets/a9f8ab43-7cd9-44f7-b74a-bb34b09a6d7b" />
+
+[l](https://github.com/pt-walk-of-fame) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [l](https://github.com/pt-walk-of-fame)
+
 <br><br>
 <img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
 
