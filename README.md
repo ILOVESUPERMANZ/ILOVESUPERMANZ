@@ -19,7 +19,7 @@
 
 <img width="23" height="22" alt="doggy" src="https://github.com/user-attachments/assets/a9f8ab43-7cd9-44f7-b74a-bb34b09a6d7b" />
 
-[Ｐｏｎｙ Ｔｏｗｎ Ｗａｌｋ ｏｆ Ｆａｍｅ](https://github.com/pt-walk-of-fame) $${{\color{#ce4627}{\textsf{•ﻌ•\}}}}$$ [ＰｏｎｙＴｏｗｎｓ Ｈａｌｌ ｏｆ Ｍｅｄｉａ](https://github.com/pt-hall-of-media)
+[Ｐｏｎｙ Ｔｏｗｎ Ｗａｌｋ ｏｆ Ｆａｍｅ](https://github.com/pt-walk-of-fame) $${{\color{#ce4627}{\textsf{❤︎\}}}}$$ [ＰｏｎｙＴｏｗｎｓ Ｈａｌｌ ｏｆ Ｍｅｄｉａ](https://github.com/pt-hall-of-media)
 
 <br><br>
 <img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
