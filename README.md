@@ -19,6 +19,7 @@
 
 <img width="23" height="22" alt="doggy" src="https://github.com/user-attachments/assets/a9f8ab43-7cd9-44f7-b74a-bb34b09a6d7b" />
 
+$${{\color{#ce4627}{\textsf{Pony Towns Kon-El confirmed (˶>⩊<˶)\}}}}$$ 
 [Ｐｏｎｙ Ｔｏｗｎ Ｗａｌｋ ｏｆ Ｆａｍｅ](https://github.com/pt-walk-of-fame) $${{\color{#ce4627}{\textsf{❤︎\}}}}$$ [ＰｏｎｙＴｏｗｎｓ Ｈａｌｌ ｏｆ Ｍｅｄｉａ](https://github.com/pt-hall-of-media)
 
 <br><br>
