@@ -26,7 +26,7 @@ $${{\color{#ce4627}{\textsf{Pony Towns Kon-El confirmed (˶>⩊<˶)\}}}}$$
 <br><br>
 <img height="30" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
 
-$${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry     ,    No Masc terms preferred  .   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
+$${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Kon or Kent ⸝⸝ Furry     ,    No Masc terms preferred  .   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
 
 $${{\color{#d98213}{\textsf{‧˚꒰🐾   ◞ Panromantic    ಄    Bigender ಄    Pupgender ୭˚. \}}}}$$
 
