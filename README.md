@@ -24,7 +24,7 @@ $${{\color{#ce4627}{\textsf{Pony Towns Kon-El confirmed (˶>⩊<˶)\}}}}$$
 [Ｐｏｎｙ Ｔｏｗｎ Ｗａｌｋ ｏｆ Ｆａｍｅ](https://github.com/pt-walk-of-fame) $${{\color{#ce4627}{\textsf{❤︎\}}}}$$ [ＰｏｎｙＴｏｗｎｓ Ｈａｌｌ ｏｆ Ｍｅｄｉａ](https://github.com/pt-hall-of-media) $${{\color{#ce4627}{\textsf{❤︎\}}}}$$ [Ｔｉｔｌｅ-Ｔｏｗｎ](https://github.com/title-town)
 
 <br><br>
-<img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
+<img width="30" height="30" alt="puppuuu" src="https://github.com/user-attachments/assets/fb9a9510-1037-4959-9647-3964a1552085" />
 
 $${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Zilch or Kon ⸝⸝ Furry     ,    No Masc terms preferred  .   She/Pup 𐂯 .ᐟ⸝⸝  \}}}}$$
 
