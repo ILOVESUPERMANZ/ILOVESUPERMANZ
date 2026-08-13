@@ -30,6 +30,6 @@ $${{\color{#a90000}{\textsf{૮₍｡•̀ ﻌ •́｡₎ა  𓂅  Kon or Kent
 
 $${{\color{#d98213}{\textsf{‧˚꒰🐾   ◞ Panromantic    ಄    Bigender ಄    Pupgender ୭˚. \}}}}$$
 
-$${{\color{#2554b4}{\textsf{ ฅ ฅ 𑣲 14 y.o ᛝ 08/13/2011    ★ Kon-El IRL ˚ Fictkin     . 𝑺uperman fan ‹𝟹 ૮˶- ﻌ -˶ა⌒)ᦱ  \}}}}$$
+$${{\color{#2554b4}{\textsf{ ฅ ฅ 𑣲 15 y.o ᛝ 08/13/2011    ★ Kon-El IRL ˚ Fictkin     . 𝑺uperman fan ‹𝟹 ૮˶- ﻌ -˶ა⌒)ᦱ  \}}}}$$
 
 $${{\color{#76a63d}{\textsf{ꗞ NUMB 1 GUY GARDNER GLAZER AND FAN!!! 💚  Hes the best Green Lantern change my mind yo ⟢ \}}}}$$
