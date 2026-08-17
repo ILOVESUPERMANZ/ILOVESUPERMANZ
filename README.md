@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＳＴＲＡＷＰＡＧＥ](https://supermanluver.straw.page) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
+[ＧＵＮＳ.ＬＯＬ](https://guns.lol/ilovesuperman) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＰＲＯＮＯＵＮＳ.ＣＣ](https://en.pronouns.page/@SUPERPUP) $${{\color{#ee9f27}{\textsf{✰\}}}}$$ [ＡＴＡＢＯＯＫ](https://ilovesuperman.atabook.org/)
 
 <img height="22" alt="doggy" src="https://github.com/user-attachments/assets/a9f8ab43-7cd9-44f7-b74a-bb34b09a6d7b" />
 
